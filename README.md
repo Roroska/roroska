@@ -1,2 +1,2 @@
-<img width="1152" height="648" alt="Image" src="https://github.com/user-attachments/assets/448b228e-7394-4ba5-9546-07feed2210d2" />
+<img width="537" height="464" alt="Image" src="https://github.com/user-attachments/assets/3512c3e5-7718-4cd4-a2b9-0d0539843ca2" />
 BMF IM SO SAD AND LONELY IM COOL!!
